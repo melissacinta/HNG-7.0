@@ -1,1 +1,1 @@
-These are the Images
+The page images and logo
